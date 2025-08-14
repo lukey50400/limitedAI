@@ -1,3 +1,3 @@
 i  made a limited ai that you cant control but it controls you
-1.0 and 1.1 mirsoft thinks is trojon so in 1.3 microsoft will noth think it will be trojan but less chaos
+also mirosoft thinks this is a trojan becuase of all the chaos and I dont know how to fix this help would be greatly appreciated
 
